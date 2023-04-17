@@ -1,6 +1,7 @@
 ## Welcome to MeIsCoding69 :3
 
 🙋‍♀️ We (some friends ^^) are coding stuff like minecraft clients etc.
+
 🌈 How to support us? Either you can donate a little bit of money (links are coming) or join our public discord ([Discord Server](https://discord.gg/Msd62FzBB3 "Join our Discord"))
 
 
